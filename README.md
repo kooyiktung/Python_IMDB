@@ -1,0 +1,3 @@
+# Observing the changes of people's expectations for the future from the perspective of science fiction films
+## Background
+With the continuous development of science ,and the progress of the film industry, people have more and more space to imagine. Science fiction movies have made a qualitative leap in the past few decades, and the audience's views on science fiction films are also changing. What is the relationship between the development of science fiction films and people's expectations for the future? How has the theme of science fiction movies changed in these decades? These questions are always making people very curious about.
